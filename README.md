@@ -1,3 +1,2 @@
 #### `Sugar-Phosphate Backbone of life`
-###### aaaahhh i have nothing going on on this its under construction hmu on discord (@toffeekovich) if you like fags or medical sciences or biology or ww2 era germany or history in general aahaa...
-#### `dioxyrene-my ass acid base idk`
+######
